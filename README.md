@@ -1,4 +1,4 @@
-# PEC3: Visionando el futuro con las gafas de Manovich 
+# PAC3:  Visionant el futur amb les ulleres de Manovich: redescobrint la hibridació 
 
 ### Casos d'hibridació
 
